@@ -1,1 +1,1 @@
-Android¶Ë·ÃÎÊapp
+Androidç«¯è®¿é—®app
